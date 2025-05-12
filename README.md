@@ -1,0 +1,1 @@
+# Davinci-Resolve-studio-18-full
